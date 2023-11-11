@@ -4,4 +4,4 @@ Unfortunately, the size of the data in this repository is too large to be direct
 
 [Google Drive Link](https://drive.google.com/drive/folders/1ykG0wUF6p47NM89rMLiBEnzbN2EkvsIC?usp=sharing)
 
-We apologize for any inconvenience, and appreciate your understanding.
+I apologize for any inconvenience, and appreciate your understanding.
